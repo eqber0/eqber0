@@ -3,4 +3,4 @@
 
 - 👨‍💻 All of my projects are available at [https://yilmazbilgehan.com](https://yilmazbilgehan.com)
 
-- 📫 How to reach me **yilmazbilgehan@icloud.com**
+- 📫 How to reach me **yilmaz.bilgehan@icloud.com**
